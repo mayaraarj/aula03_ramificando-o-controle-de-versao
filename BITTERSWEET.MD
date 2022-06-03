@@ -1,0 +1,62 @@
+Bitter Sweet Symphony
+The Verve
+ 
+'Cause it's a bitter sweet symphony, this life
+Trying to make ends meet, you're a slave to money then you die
+I'll take you down to the only road I've ever been down
+You know the one that takes you to the places where all the veins meet, yeah
+
+No change, I can change, I can change, I can change
+But I'm here in my mold, I am here in my mold
+But I'm a million different people from one day to the next
+I can't change my mold, no, no, no, no, no
+(Have you ever been down?)
+
+Well, I've never prayed, but tonight I'm on my knees, yeah
+I need to hear some sounds that recognize the pain in me, yeah
+I let the melody shine, let it cleanse my mind, I feel free now
+But the airwaves are clean and there's nobody singing to me now
+
+No change, I can change, I can change, I can change
+But I'm here in my mold, I am here in my mold
+And I'm a million different people from one day to the next
+I can't change my mold, no, no, no, no, no
+(Have you ever been down?)
+I can't change it you know, I can't change it
+
+'Cause it's a bitter sweet symphony, this life
+Trying to make ends meet, trying to find some money then you die
+
+You know I can change, I can change, I can change, I can change
+But I'm here in my mold, I am here in my mold
+And I'm a million different people from one day to the next
+I can't change my mold, no, no, no, no, no
+I can’t change my mold, no, no, no, no, no
+I can’t change my mold, no, no, no, no, no
+You’ve gotta change my mold, no, no, no
+
+(It’s just sex and violence, melody and silence)
+(Gotta, can’t change my violence, melody and silence)
+(Gotta can’t change my violence, melody and silence)
+(I’ll take you down the only road I've ever been down)
+(Gotta, can’t change my violence, melody and silence)
+(I'll take you down the only road I've ever been down)
+(Gotta, can’t change my violence, melody and silence)
+
+(Been down)
+(Ever been down)
+(Can’t change my violence, melody and silence)
+(Ever been down)
+(Ever been down)
+(Ever been down)
+
+(Have you ever been down?)
+(Have you ever been down?)
+(Have you ever been down?)
+(Have you ever been down?)
+(Have you ever been down?)
+
+(Lord, yeah, babe, Lord, Lord, take me on my way
+Takes me, now, yeah)
+
+Composição: Richard Ashcroft.
