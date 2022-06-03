@@ -1,5 +1,5 @@
-Bitter Sweet Symphony
-The Verve
+# Bitter Sweet Symphony
+- Banda: The Verve
  
 'Cause it's a bitter sweet symphony, this life
 Trying to make ends meet, you're a slave to money then you die
