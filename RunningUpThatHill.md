@@ -1,121 +1,70 @@
-# Musica escolhida por Sabrina Helena Ferreira: 
-## Running up that hill
-### Artista: Kate Bush
+# Running up that hill
+- Cantora: Kate Bush
 
+It doesn't hurt me. <br>
+Do you want to feel how it feels?<br>
+Do you want to know that it doesn't hurt me?<br>
+Do you want to hear about the deal that I'm making?<br>
+You, it's you and me.<br>
 
+If I only could,<br>
+I'd make a deal with God,<br>
+And I'd get him to swap our places,<br>
+Be running up that road,<br>
+Be running up that hill,<br>
+Be running up that building.<br>
+If I only could, oh<br>
 
-## _Letra da musica:_
+You don't want to hurt me,<br>
+But see how deep the bullet lies.<br>
+Unaware I'm tearing you asunder.<br>
+Ooh, there is thunder in our hearts.<br>
 
-It doesn't hurt me. 
+Is there so much hate for the ones we love?<br>
+Tell me, we both matter, don't we?<br>
+You, you and me.<br>
+It's you and me won't be unhappy.<br>
 
-Do you want to feel how it feels?
+If I only could,<br>
+I'd make a deal with God,<br>
+And I'd get him to swap our places,<br>
+Be running up that road,<br>
+Be running up that hill,<br>
+Be running up that building,<br>
+If I only could, oh<br>
 
-Do you want to know that it doesn't hurt me?
+C'mon, baby, c'mon darling,<br>
+Let me steal this moment from you now.<br>
+C'mon, angel, c'mon, c'mon, darling,<br>
+Let's exchange the experience, oh<br>
 
-Do you want to hear about the deal that I'm making?
+And if I only could,<br>
+I'd make a deal with God,<br>
+And I'd get him to swap our places,<br>
+Be running up that road,<br>
+Be running up that hill,<br>
+With no problems.<br>
 
-You, it's you and me.
+If I only could,<br>
+I'd make a deal with God,<br>
+And I'd get him to swap our places,<br>
+Be running up that road,<br>
+Be running up that hill,<br>
+With no problems.<br>
 
-If I only could,
+If I only could,<br>
+Be running up that hill<br>
+If I only could,<br>
+Be running up that hill<br>
 
-I'd make a deal with God,
+If I only could,<br>
+Be running up that hill<br>
+If I only could,<br>
+Be running up that hill<br>
 
-And I'd get him to swap our places,
-
-Be running up that road,
-
-Be running up that hill,
-
-Be running up that building.
-
-If I only could, oh
-
-You don't want to hurt me,
-
-But see how deep the bullet lies.
-
-Unaware I'm tearing you asunder.
-
-Ooh, there is thunder in our hearts.
-
-Is there so much hate for the ones we love?
-
-Tell me, we both matter, don't we?
-
-You, you and me.
-
-It's you and me won't be unhappy.
-
-If I only could,
-
-I'd make a deal with God,
-
-And I'd get him to swap our places,
-
-Be running up that road,
-
-Be running up that hill,
-
-Be running up that building,
-
-If I only could, oh
-
-C'mon, baby, c'mon darling,
-
-Let me steal this moment from you now.
-
-C'mon, angel, c'mon, c'mon, darling,
-
-Let's exchange the experience, oh
-
-And if I only could,
-
-I'd make a deal with God,
-
-And I'd get him to swap our places,
-
-Be running up that road,
-
-Be running up that hill,
-
-With no problems.
-
-If I only could,
-
-I'd make a deal with God,
-
-And I'd get him to swap our places,
-
-Be running up that road,
-
-Be running up that hill,
-
-With no problems.
-
-If I only could,
-
-Be running up that hill
-
-If I only could,
-
-Be running up that hill
-
-If I only could,
-
-Be running up that hill
-
-If I only could,
-
-Be running up that hill
-
-If I only could,
-
-Be running up that hill
-
-If I only could,
-
-Be running up that hill
-
-If I only could,
-
-Be running up that hill
+If I only could,<br>
+Be running up that hill<br>
+If I only could,<br>
+Be running up that hill<br>
+If I only could,<br>
+Be running up that hill<br>
