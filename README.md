@@ -2,6 +2,11 @@
 
 ## Sumário de Músicas
 
+
+- [Bitter Sweet]
+- [Meu Lugar]
+- [Running Up That Hill]
+
 [Bitter Sweet]: ./BitterSweet.md
 [Meu Lugar]: ./MeuLugar.md
 [Running Up That Hill]: ./RunningUpThatHill.md 
